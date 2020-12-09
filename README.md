@@ -1,3 +1,3 @@
 # numberFormat
 
-Youtube videosuna buradan ulaşabilirsiniz. https://youtu.be/jadLl-ixndI
+Youtube videosuna buradan ulaşabilirsiniz. https://www.youtube.com/watch?v=Gx-b_cddy90
